@@ -1,1 +1,0 @@
-# Higher-thinking-journey
